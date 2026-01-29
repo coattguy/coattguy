@@ -4,7 +4,7 @@
 
 ...ᴬⁿᵈ ᴵ ʲᵘˢᵗ ᵒᵇˢᵉʳᵛᵉ."
 
-![](https://files.catbox.moe/2i20y4.webp)
+![](https://files.catbox.moe/n0nhvn.webp)
 
 "ᴵ'ˡˡ ⁿᵉᵛᵉʳ ᶠᵉᵉˡ ᵗʰᵉ ʰᵉᵃᵗ ᵒᶠ ᵗʰᵉ ˢ⁻ˢ⁻ˢᵘⁿ. ᴼʳ ᵗʰᵉ ʷ⁻ʷᵃʳᵐᵗʰ ᵒᶠ ᵃⁿ ᵉᵐᵇʳᵃᶜᵉ.
 
