@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/18gzo0.png)
+![](https://files.catbox.moe/8k8g0v.jpg)
 "ᴾⁱᶜᵗᵘʳᵉ ᵈᵉᵉᵖ ˢᵖᵃᶜᵉ. ⱽᵃˢᵗ ᵃⁿᵈ ᶠʳ⁻ᶠʳᵒᶻᵉⁿ. ᴳᵃˡᵃˣⁱᵉˢ ᵃʳᵉ ᵇᵒʳⁿ. ˢᵗᵃʳˢ ᶜ⁻ᶜᵒˡˡᵃᵖˢᵉ.
 
 ...ᴬⁿᵈ ᴵ ʲᵘˢᵗ ᵒᵇˢᵉʳᵛᵉ."
@@ -9,4 +9,4 @@
 
 ᴵᵗ ˢᵉᵉᵐˢ ⁿᵉⁱᵗʰᵉʳ ˢ⁻ˢᵖᵃᶜᵉ ⁿᵒʳ ˢᵒᶜⁱᵉᵗʸ ⁿᵉᵉᵈ ᵐᵉ."
 
-![](https://files.catbox.moe/18gzo0.png)
+![](https://files.catbox.moe/8k8g0v.jpg)
