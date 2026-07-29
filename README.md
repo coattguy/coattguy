@@ -3,8 +3,9 @@
 
 
 
-
-<img align="right">  ![](https://files.catbox.moe/7c4qcy.jpeg)
+<p align="right">
+  <img width="350" height="200" src="https://files.catbox.moe/7c4qcy.jpeg">
+</p>
 
 <div align="center">
 
