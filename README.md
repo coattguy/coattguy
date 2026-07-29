@@ -1,6 +1,6 @@
 
 <h3 align="center">
-<br><sub><a href="https://sealandsata.atabook.org//"> Sealands ata! </a>  ⏝        <a 
+<br><sub><a href="https://sealandsata.atabook.org/"> Sealands ata! </a>  ⏝        <a 
 
 <br><sub><a href="https://sealandds.straw.page/"> Sealands strawpage! ♩</a>
 
