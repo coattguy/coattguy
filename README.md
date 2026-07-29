@@ -16,7 +16,7 @@
 
 
 <p align="center">
-  <img width="800" height="500" src="https://files.catbox.moe/7c4qcy.jpeg">
+  <img width="800" height="450" src="https://files.catbox.moe/7c4qcy.jpeg">
 </p>
 　
 
