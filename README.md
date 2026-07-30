@@ -4,6 +4,8 @@
 
 <br><sub><a href="https://sealandds.straw.page/"> Sealands strawpage! ♩</a>
 
+<br><sub><a href="https://asksealandd.straw.page"> Draw something for me or ask me things! ♩</a>
+
 
 
 
