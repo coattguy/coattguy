@@ -1,10 +1,10 @@
 
 <h3 align="center">
-<br><sub><a href="https://sealandsata.atabook.org/"> Sealands ata! </a>  ⏝        <a 
+<br><sub><a href="https://sealandsata.atabook.org/"> sealands ata  </a>  ⏝        <a 
 
-<br><sub><a href="https://sealandds.straw.page/"> Sealands strawpage! ♩</a>
+<br><sub><a href="[sometin](https://rentry.co/sealandsintro)"> sealands rentry ♩</a>
 
-<br><sub><a href="https://asksealandd.straw.page"> Draw something for me or ask me things! ♩</a>
+<br><sub><a href="https://asksealandd.straw.page"> draw stuff! ♩</a>
 
 
 
